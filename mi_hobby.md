@@ -2,7 +2,7 @@
 
 **Diversión**: Disfruto ver películas porque me permite crear un momento de paz y tranquilidad con mi familia luego de que vengan del trabajo.
 
-**Familia**: Mi hermana y yo compartimos este hobby. A menudo nos reunimos para ver películas juntas en casa o para ir al cine en familia los fines de semana.
+**Familia**: Mi hermano y yo compartimos este hobby mas que con el resto de la familia porque tenemos gustos parecidos aunque con el resto de la familia vemos peliculas los fines de semana.
 
 **Amigos**: de vez en cuando me junto con unos amigos para ver peliculas wue elegimos entre todos 
 
